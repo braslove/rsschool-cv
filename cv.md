@@ -4,6 +4,7 @@ ___
 #### Contacts:
 * **email:** braslove@yahoo.com
 * **tel:** +375
+* **pager:** +375
 ___
 #### Skills:
 + confident PC user+ 
