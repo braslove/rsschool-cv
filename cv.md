@@ -7,6 +7,7 @@ ___
 * **pager:** +375
 * **location:** Minsk
 ___
+
 #### Skills:
 + confident PC user+ 
 + 2
